@@ -12,7 +12,7 @@
 
 - 🚜👩🏼‍🌾 Sou AgroGirl
 
-- 💖🤍 Torço pro Internacional
+- 💖🤍 Torço pro Internacional e 💛🖤 Criciúma
 
 - 💻👩🏼‍💻 Pretendo ser Engenheira da Computação
 
