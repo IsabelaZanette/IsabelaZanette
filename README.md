@@ -1,6 +1,7 @@
-  Olá👋
+  Olá, sou a Isa 👋
 
-- 🔭 I’m currently working on Programação
-- 🌱 I’m currently learning Programação
-- 📫 How to reach me: Criciuma-SC
-- 😄 Pronouns: ela/dela
+- 👩🏼‍💻 Sou estudante de Programação
+- 📍  Moro em: Criciuma-SC
+- 😄 Pronome: ela/dela
+- 🎮 Amo jogos
+- 💫 Gosto de Animes
