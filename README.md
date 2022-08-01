@@ -1,6 +1,19 @@
   Olá, sou a Isa 👋
 
+✨✨✨✨Curiosidades proissionais✨✨✨✨
+
+- 💻👩🏼‍💻 Estou aprendendo linguagens Java e Python
+
+- 💻💻 Faço curso técnico de informática
+
 - 👩🏼‍🎓💻 Sou estudante de Programação
+
+- 💻👩🏼‍💻 Pretendo ser Engenheira da Computação
+
+- 💻💼 Pretendo futuramente trabalhar com Hardware e Software
+
+
+✨✨✨✨Curiosidades pessoais✨✨✨✨
 
 - 📍🏡  Moro em: Criciuma-SC
 
@@ -14,8 +27,6 @@
 
 - 💖🤍 Torço pro Internacional e 💛🖤 Criciúma
 
-- 💻👩🏼‍💻 Pretendo ser Engenheira da Computação
-
 - 🎶🎵 Amo escutar música
      *Rock
      *Pop
@@ -24,7 +35,9 @@
      *Internacional
      *Eletronica
 
+
 ✨✨✨✨Redes sociais✨✨✨✨
+
 Discord > °𝔇𝔞𝔯𝔨_𝔐𝔬𝔬𝔫°#1495
 Spotify > Dark_Moon
 Steam   > isabelzanettemartinello
