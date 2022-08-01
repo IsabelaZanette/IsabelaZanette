@@ -5,3 +5,4 @@
 - 😄 Pronome: ela/dela
 - 🎮 Amo jogos
 - 💫 Gosto de Animes
+- 🚜Sou AgroGirl
