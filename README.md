@@ -1,4 +1,5 @@
-  Olá, sou a Isa 👋
+  Olá, sou a Isabela, mas pode me chamar de Isa! 👋
+  Tenho 17 anos 🎂
 
 ✨✨✨✨Curiosidades proissionais✨✨✨✨
 
@@ -15,15 +16,19 @@
 
 ✨✨✨✨Curiosidades pessoais✨✨✨✨
 
+- 👩🏼‍🎓📚 Estou no Terceiro ano do Ensino Médio
+
 - 📍🏡  Moro em: Criciuma-SC
 
-- 😄🖤 Pronome: ela/dela
+- 😄🖤 Pronome: Ela/Dela
 
-- 🎮💜 Amo jogos
+- 🎮💜 Gamer
+
+- ❤️🐈 Amo Gatos
 
 - 💫💞 Gosto de Animes
 
-- 🚜👩🏼‍🌾 Sou AgroGirl
+- 🚜👩🏼‍🌾 AgroGirl
 
 - 💖🤍 Torço pro Internacional e 💛🖤 Criciúma
 
@@ -31,10 +36,7 @@
      *Rock
      *Pop
      *Sertanejo
-     *Funk
      *Internacional
-     *Eletronica
-
 
 ✨✨✨✨Redes sociais✨✨✨✨
 
