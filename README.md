@@ -1,17 +1,17 @@
-  Olá, sou a Isabela, mas pode me chamar de Isa! 👋
-  Tenho 17 anos 🎂
+  Olá, sou a Isabela! 
+  Tenho 17 anos 
 
 ✨✨✨✨Curiosidades proissionais✨✨✨✨
 
-- 💻👩🏼‍💻 Estou aprendendo linguagens Java e Python
+- 👩🏼‍💻 Conhecimento em: Python, JavaScript, HTML, CSS.
 
-- 💻💻 Faço curso técnico de informática
+- 💻👩‍💻Faço curso técnico de informática
 
-- 👩🏼‍🎓💻 Sou estudante de Programação
+- 👩‍🎓 Sou estudante de Programação
 
-- 💻👩🏼‍💻 Pretendo ser Engenheira da Computação
+- 👩🏼‍💻 Pretendo ser Engenheira da Computação
 
-- 💻💼 Pretendo futuramente trabalhar com Hardware e Software
+- 💼 Pretendo futuramente trabalhar com Hardware e Software
 
 
 ✨✨✨✨Curiosidades pessoais✨✨✨✨
@@ -20,22 +20,19 @@
 
 - 📍🏡  Moro em: Criciuma-SC
 
-- 😄🖤 Pronome: Ela/Dela
-
 - 🎮💜 Gamer
 
 - ❤️🐈 Amo Gatos
 
-- 💫💞 Gosto de Animes
+- 🍥🍜 Gosto de Animes
 
 - 🚜👩🏼‍🌾 AgroGirl
 
-- 💖🤍 Torço pro Internacional e 💛🖤 Criciúma
+- ❤️🤍 Torço pro Internacional e 💛🖤 Criciúma
 
 - 🎶🎵 Amo escutar música
      *Rock
      *Pop
-     *Sertanejo
      *Internacional
 
 ✨✨✨✨Redes sociais✨✨✨✨
@@ -45,5 +42,3 @@ Spotify > Dark_Moon
 Steam   > isabelzanettemartinello
 Twitch  > colorada_1909
 Xbox    > Dark moon9122
-Twitter > Isabela26510654
-
