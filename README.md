@@ -5,7 +5,7 @@
 
 - 👩🏼‍💻 Conhecimento em: Python, JavaScript, HTML, CSS.
 
-- 💻👩‍💻Faço curso técnico de informática
+- 💻👩‍💻Sou técnica de Informática
 
 - 👩‍🎓 Sou estudante de Programação
 
@@ -16,7 +16,7 @@
 
 ✨✨✨✨Curiosidades pessoais✨✨✨✨
 
-- 👩🏼‍🎓📚 Estou no Terceiro ano do Ensino Médio
+- 👩🏼‍🎓📚 Terminei o Ensino Médio em 2023
 
 - 📍🏡  Moro em: Criciuma-SC
 
@@ -26,11 +26,14 @@
 
 - 🍥🍜 Gosto de Animes
 
+- 👫☂️🥢 Adoro Doramas
+
 - 🚜👩🏼‍🌾 AgroGirl
 
 - ❤️🤍 Torço pro Internacional e 💛🖤 Criciúma
 
 - 🎶🎵 Amo escutar música
+     *K-pop
      *Rock
      *Pop
      *Internacional
