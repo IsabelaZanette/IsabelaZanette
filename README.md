@@ -11,8 +11,6 @@
 
 - 👩🏼‍💻 Pretendo ser Engenheira da Computação
 
-- 💼 Pretendo futuramente trabalhar com Hardware e Software
-
 
 ✨✨✨✨Curiosidades pessoais✨✨✨✨
 
@@ -20,7 +18,7 @@
 
 - 📍🏡  Moro em: Criciuma-SC
 
-- 🎮💜 Gamer
+- 🎮💜 Sou Gamer
 
 - ❤️🐈 Amo Gatos
 
@@ -30,7 +28,7 @@
 
 - 🚜👩🏼‍🌾 AgroGirl
 
-- ❤️🤍 Torço pro Internacional e 💛🖤 Criciúma
+- ❤️🤍 Torço para o Internacional e 💛🖤 Criciúma
 
 - 🎶🎵 Amo escutar música
      *K-pop
@@ -44,4 +42,3 @@ Discord > °𝔇𝔞𝔯𝔨_𝔐𝔬𝔬𝔫°#1495
 Spotify > Dark_Moon
 Steam   > isabelzanettemartinello
 Twitch  > colorada_1909
-Xbox    > Dark moon9122
