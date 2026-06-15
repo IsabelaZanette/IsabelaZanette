@@ -1,5 +1,5 @@
   Olá, sou a Isabela! 
-  Tenho 19 anos 
+  Tenho 20 anos 
 
 ✨✨✨✨Curiosidades proissionais✨✨✨✨
 
@@ -7,8 +7,6 @@
 
 - 💻👩‍💻Sou técnica de Informática
 
-- 👩‍🎓 Sou estudante de Programação
-
-- 👩🏼‍💻 Pretendo ser Engenheira da Computação
+- 👩🏼‍💻 Engenharia de Computação
 
 
